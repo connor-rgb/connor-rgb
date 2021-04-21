@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @connor-rgb
+- 👀 I’m interested in raspberry pi
+- 🌱 I’m currently learning School
+- 📫 How to reach me connorsunderland2008@gmail.com
